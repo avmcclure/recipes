@@ -14,7 +14,9 @@ These are fairly plain but can be dressed up as needed.
 * 2 tbsp olive oil - 238 calories
 
 Total cooked volume - 32 fl oz
+
 Total Calories - 1439
+
 Calories per cup - 373
 
 ## Mise en place
